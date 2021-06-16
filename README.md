@@ -1,1 +1,1 @@
-# NASA-SEES-Internship-2021
+# NASA SEES Internship 2021
